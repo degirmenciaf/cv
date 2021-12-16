@@ -1,2 +1,2 @@
-# [Resume](degirmenciaf.github.io/cv/)
+# [CV](degirmenciaf.github.io/cv/)
 
